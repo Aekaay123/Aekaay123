@@ -5,6 +5,6 @@ This is Kencho Wangdi and welcome to my github profile
 - 💬 Ask me about coding journey
 - 📫 How to reach me: https://www.facebook.com/zamling.kencho.7
 - 😄 Pronouns: he
-- ⚡ Fun fact: Selectively extrovert but naturally introvert![Uploading SoExcited~GIF.gif…]()
+- ⚡ Fun fact: Selectively extrovert but naturally introvert
 
 
